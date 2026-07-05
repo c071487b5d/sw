@@ -12,6 +12,7 @@
 - [Sexuality in Hinduism](./questions/sexuality-in-hinduism.md)
 - [Violence in Hinduism](./questions/violence-in-hinduism.md)
 - [Women Rights in Hinduism](./questions/women-rights-hinduism.md)
+- [Slaves in Hinduism](./questions/slaves-in-hinduism.md)
 - [Others Questions](./questions/other-questions.md)
 
 # Theology

@@ -151,5 +151,30 @@ In Hinduism, Brahma went to a sage's house and emitted his semen and the woman d
 **References:**
   - Padma Puran, sec-1, chapter 55, Verse 19-30
 
+---
 
-  
+In Hinduism, if a person goes to heaven after death, that person will receive 1000 apsaras.
+
+
+> attains to success, O king, in six years. There is no doubt in this. Such a man earns the merit that attaches to the performance of the Agnishtoma sacrifice. Endued with merit and freed from every kind of stain, he attains to the region of the Apsaras that echo with the sound of songs and dance, and passes his days in the company of a thousand damsels of great beauty.
+He rides on a car of the complexion of melted gold and receives high honours in the region of Brahma. After the exhaustion of that merit such
+
+
+
+**References:**
+  - Mahabharat, Anushasana Parva, Section 106, Verses 53-55
+
+
+---
+
+Krishna married his cousin.
+
+
+> Bhadra was a princess of the Kaikeya kingdom and the daughter of Lord Krsna's paternal aunt Śrutakīrti. The Lord married Bhadrā when her brothers, headed by Santardana, offered her to Him
+
+
+> 31My dear King, Lord Krşņa forcibly took away Princess Mitravindā, the daughter of His aunt Rājādhidevī, before the eyes of the rival kings.
+
+**References:**
+  - Srimad Bhagwatam 10:58:31&56
+

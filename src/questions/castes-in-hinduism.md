@@ -40,3 +40,13 @@ In Hinduism, If someone kills a Brahmin, he will go into the womb of a cow, dog,
 **References:**
   - Manusmriti 12:55
 
+---
+
+In Hinduism, Hanuman says: I am a small caste. People who say my name do not give food.
+
+
+> Hanuman said: Tell me, how great a noble am I? I am a fickle monkey [by caste) and lowly in every way. If anyone takes our (monkeys') name in the morning, he will not get any food that day.
+
+**References:**
+  - Shri ramcharitmanas 146/6/4(gita press) Page no: 723
+

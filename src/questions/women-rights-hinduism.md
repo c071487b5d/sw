@@ -79,3 +79,25 @@ In Hinduism, a sati wife is described as a prostitute for her husband.
   - Padma Purana Book 1 SEC:1 Chapter 50 Verse 55B 56A
 
 
+---
+
+
+Dowry in hinduism, Krishna Gave 1000 Virgin Girls To Pandavas as Dowry For His Sister's Wedding With Arjuna.
+
+> He also gave them a thousand mules, all well-trained and possessing the speed of the wind, of white colour with black manes. And he of eyes like lotus-petals also gave unto them a thousand damsels well-skilled in assisting at bathing and at drinking, young in years and virgins all before their first-season, well-attired and of excellent complexion, each wearing a hundred pieces of gold around her neck, of skins perfectly polished, decked with every ornament, and well-skilled in every kind of personal service.
+
+**References:**
+  - Mahabharata, Adi Parva, Haranaharana Parva, Section CCXXIII, 48-50
+
+---
+
+
+In Hinduism, Men can have polygamy, but if a woman has more than one husband, she is a sinful woman.
+
+
+> O revered sir, abandoning me you mayest obtain another wife. By her you mayest again acquire religious merit. There is no sin in this. For a man polygamy is an act of merit, but for a woman it is very sinful to betake herself to a second husband after the first.
+
+
+**References:**
+  - MAHABHARAT, adi parva 1, Vaka-vadha Parva Section 160, verse 36
+

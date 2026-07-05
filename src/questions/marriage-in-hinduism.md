@@ -10,3 +10,11 @@ Krishna married rukmini when she was 8 years old.
   - [Skanda Puran: book 5, section 3, chapter 142, verse 16-27](https://www.wisdomlib.org/hinduism/book/the-skanda-purana/d/doc425871.html)
   - [Who is Four-armed One](https://www.wisdomlib.org/concept/four-armed-one)
 
+---
+
+Marriage of a child girl to an elder is ordained in Hinduism
+
+> A man is 30 years old. That person should marry a girl below 10 years. Another man is 20 years old. That person should marry a girl below 7 years of age. And one should not marry a woman who has no brother or father.
+
+**References**:
+  - MAHABHARAT ANUSASANIKA PARVA CHAPTER 44 VERSE 18
