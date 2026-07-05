@@ -109,3 +109,47 @@ In Hinduism, The defect lies in women always and a thin discharge starts to come
 **References:**
   - Shiva Purana, section 5 uma samhita, Chapter 24, Verse 30 & 35
 
+---
+
+In Hinduism, if a husband ejaculates during a wife's period, it is said to apply the ejaculate to her eyebrows and breasts.
+
+> One who, after churning the semen, observes celibacy and waits for the menstrual period of his wife, if due to intense passion, his semen is released,
+whether little or more, while sleeping or while awake, (then he should perform the following penance). Touch that semen with your hand and chant a mantra. While touching it, say, "Today, the semen that I ejaculated and fell on the earth, that has also fallen on food in the past, and that which has fallen in water, I accept this semen. "Having said this, take that semen with your ring finger and thumb and apply it on both the breasts or between the eyebrows. While applying it, say, "May the sense organ (that had gone out in the form of ejaculated semen) return to me.
+May I regain my strength and good fortune. May those gods, whose abode is fire, re-establish that semen in its rightful place in my body."
+
+**References:**
+  - Bhradranyak upanishad 6/4/4-5
+
+---
+
+In Hinduism, Deer gets pregnant after drinking sage's semen.
+
+
+> 65. After drinking the semen of Sage Vibhāņdaka together with water, a female deer became pregnant and gave birth to Rṣyaśriga.
+> 66. A female deer touched the hand of the king of Surāștra, became pregnant instantly and gave birth to an ascetic.
+
+**References:**
+  - Skand Puran, book 3, sec 3, chapter 19, Verse 61-66
+
+---
+
+In Hinduism, Gods use apsaras for their own sexual pleasure.
+
+
+> Some of the ladies becomes the whores and earn their living by selling away their body. I am an apsara of the heaven and am used by the gods in the heaven and am quite respectable."
+
+**References:**
+  - Brahma Vaivarta Purana, khrisna janma khanda, chapter 32, Verse 55.
+
+---
+
+In Hinduism, Brahma went to a sage's house and emitted his semen and the woman drink the semen.
+
+> There was a sage named Shantanu and his beautiful wife was Amoga. Shantanu went to the forest to pick flowers and then Brahma came to Shantanu's house. Shantanu's wife Amoga invited Brahma to her house as a sign of respect. Brahma, seeing Shantanu's wife Amoga, saw Brahma's semen fall. And Brahma's semen remained on the bed. Brahma left the house in pain. Then Shantanu came and saw that there was semen on the bed. Shantanu asked his wife where she came from. Amoga said Brahma came. Rishi Shantanu told his wife to drink that semen, if you drink that semen, you will be born a beautiful child. And his wife drank it.
+
+
+**References:**
+  - Padma Puran, sec-1, chapter 55, Verse 19-30
+
+
+  

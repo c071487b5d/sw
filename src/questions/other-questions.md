@@ -123,3 +123,30 @@ So, as per this calculation, 21% of whole Veda of 10^5 is surviving today and 79
 **References:**
   - VISHNU PURANA 3:4
 
+
+---
+
+In Hinduism, Visnu incarnated as Buddha to deceive people.
+
+
+> 1. I am describing the manifestation (of Visņu) as Buddha, by reading and hearing which one gets wealth. Once in the battle between devas and asuras, devas were defeated by the daityas (demons, sons of Diti).
+> 2. They sought refuge in the lord saying, "Protect us! Protect us!". He (Vişnu), who is of the form of illusory delusion became the son of Suddhodana.
+> 3-4. He deluded those demons. Those, who had abandoned the path laid down in the Vedas, became the Bauddhas and from them others who had abandoned the Vedas. He then became the Arhat (Jaina). He then made others as Arhats. Thus the heretics came into being devoid of vedic dharmas.
+> 5-6. They did such a work deserving hell (as reward). They would receive even from the vile. All of them became mixed Dasyus and devoid of good conduct at the end of Kaliyuga. Of the Vajasaneyaka veda (Śuklayajurveda) only fifteen sections will be existing.
+
+**References:**
+  - Agni Purana Chapter 16, Verse 1-5
+
+
+---
+
+In Hinduism, Shiva killed Kamadeva, an act against the Vedas.
+
+
+> 5. With love I have described in bad taste another man's woman. I have contravened rules of virtue and transgressed the bounds of the Vedas.
+
+> When Kamadeva's arrow was shot at Shivaji, Shivaji burned Kamadeva to ashes with his third eye, then seeing her husband's death, Rati fell unconscious as if she had been killed, then after a while when she regained consciousness, she started crying, what should I do, what should I go, the god has called my husband here and destroyed him, O God, work, dearer than my life, O one who gives happiness, my dear, my dear.
+
+**References:**
+  - Shiva Purana, Section 2.3, Chapter 19, Verses 6-23
+

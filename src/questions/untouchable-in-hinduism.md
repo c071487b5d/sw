@@ -29,3 +29,14 @@ According to Hinduism, Hindus cannot learn and speak foreign languages.
 **References**:
   - satapatha brahmana Kanda 3, adhyaya 2, brahmana 1, verse 24
 
+
+---
+
+In Hinduism, if a Brahmin touches a Shudra or a dog, he becomes impure. And the vessels that have the smell of a cow, or have been touched by a crow or a dog, and the vessels from which a shudra eats, should be purified by scrubbing them with ten types of ashes.
+
+> A Bráhmaņa, who touches a dog, or a S'udra before washing his mouth, after eating, should fast for a day, and take the compound known as Panchagavyam in order to recover his cleanness. (22)
+A vessel of bell metal, not defiled by the touch of wine, should be purified by rubbing it with ashes, while in a case of such defilement it should be purified by heating it in fire. (23). 
+> Vessels of bell metai, smelled by kine, or defiled by the touch of dogs, crows, etc., or out of which S'udras have taken their food, should be purified by rubbing them with ten kinds of ashes
+
+**References**:
+  - PARASARA SAMHITA chapter 7 verse 22-24

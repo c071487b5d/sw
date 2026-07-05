@@ -30,4 +30,13 @@ In Hinduism, one who does good deeds is born as a brahmin, a ksatriya, or vaisya
   - Chandogya upanishad 5.10.7
 
 
-  
+---
+
+In Hinduism, If someone kills a Brahmin, he will go into the womb of a cow, dog, pig, etc.
+
+> He who kills a Brāhmaṇa enters the womb of a dog, a pig, an ass, a camel, a cow, a goat, a sheep, a deer or a bird, or that of a Candāla or a Pukkasa.-(55)
+
+
+**References:**
+  - Manusmriti 12:55
+

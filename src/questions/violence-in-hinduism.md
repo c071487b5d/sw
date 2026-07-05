@@ -47,5 +47,30 @@ In Hinduism, The Creator created meat to be eaten.
 > The eater incurs no sin by eating, even daily, such animals as are eatable: since the eater as well as the eaten animals have been created by the creator himself (30)
 
 
-**Reference:**
+**References:**
   - Manusmriti 5:30
+
+---
+
+In Hinduism, Sita says Ram is killing animals.
+
+
+> "Be comfortable for a moment, here it is possible for you to make a sojourn, and soon my husband will be coming on taking plentiful forest produce, and on killing stags, mongooses, wild boars he fetches meat, aplenty"
+
+**References:**
+  - Valmiki Ramayana 3:47:23
+
+
+---
+
+Animal sacrifice in Hinduism, To worship Kali dev, animals are sacrificed and their blood is consumed.
+
+
+> After doing this the adept should worship the sword with the following mantra: Om aim hrim phay, and then holding the clean sword cut (into two pieces) the excellent sacrificial animal. There after he should carefully perfume the blood of the oblation with water, salt, good fruits, honey, perfumery and flowers and then offer the blood by repeating "Om aim hrim Srim Kausiki", "I am giving you the blood"
+
+
+**References:**
+  - kalika puran 67:19
+
+
+
