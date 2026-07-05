@@ -1,0 +1,7 @@
+[book]
+title = "SanatanaWiki"
+authors = ["EMAN UNION"]
+language = "en"
+
+[output.html]
+default-theme = "navy"
