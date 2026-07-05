@@ -11,3 +11,11 @@ There is no creature more sinful, O son, than women. Woman is a blazing fire. Sh
 **References:**
   - Мahabharata 13:40:50-51
 
+---
+
+In Hinduism, the mind of a woman cannot be disciplined; she has very little intelligence.
+
+> Verily Indra said that the mind of a woman is not to be controlled, he declared also that her intellect was small.
+
+**References:**
+  - Rig Veda 8.33.17
